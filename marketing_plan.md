@@ -1,5 +1,23 @@
+===
+
 Company's mission - to help our clients receive sincere pleasure from of making
 plastic scale models.
+
+===
+
+About the products.
+
+To make a scale plastic model exactly as it is shown on the packaging, you need
+to use special paints to paint ready-made, assembled models. For these purposes,
+special paint is used, which is applied with a brush, airbrush or aerosol.
+
+The company guarantees the quality of its products, which means that models
+painted with HomaFarba will not fade with time, will not peel, or crack from
+external factors. The composition is completely safe for health, non-toxic, and
+in case of accidental contact with skin, clothing, or furniture, stains can be
+easily removed with a solvent.
+
+===
 
 About the company.
 
